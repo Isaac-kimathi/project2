@@ -1,1 +1,1 @@
-AI-Powered CRM
+AI-Powdred CRM
